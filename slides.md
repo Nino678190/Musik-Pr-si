@@ -87,7 +87,7 @@
 - Mischung aus Hoffnung & Propaganda 
 - Heute historisches Relikt aus der Zeit der deutschen Teilung 
 
---
+---
 
 ## Quellen
 - [https://www.bpb.de/themen/deutsche-einheit/deutsche-teilung-deutsche-einheit/43666/veraenderungen-im-zeichen-der-entspannung/](https://www.bpb.de/themen/deutsche-einheit/deutsche-teilung-deutsche-einheit/43666/veraenderungen-im-zeichen-der-entspannung/)
